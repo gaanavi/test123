@@ -1,5 +1,5 @@
-my name is hari
-my name daught name is gaanavi
-my wife name is lakshmi
-my father name is venkateswarlu
-my mothar name is ramanamma
+my name is krishna
+my name daught name is gaanu
+my wife name is lak
+my father name is dvr
+my mothar name is amma
